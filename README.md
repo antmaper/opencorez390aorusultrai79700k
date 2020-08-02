@@ -1,0 +1,1 @@
+# opencorez390aorusultrai79700k
